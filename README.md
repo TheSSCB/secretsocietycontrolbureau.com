@@ -1,4 +1,6 @@
 # secretsocietycontrolbureau.com
+Congratulations. You found our webpage. The SSCB congratulates you.
+
 The Secret Society Control Bureau (SSCB) was created to help catalog and control small secret societies. 
 It has several members, but the names are classified.
 
