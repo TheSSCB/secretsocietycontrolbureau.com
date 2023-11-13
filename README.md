@@ -19,4 +19,4 @@ Sisters in Shadows,
 Brothers in Shadows, and
 Matchstick.
 
-Be warned. If you make a secret society, the SSCB will find it.
+A message for all the small societies: We are not here to shut you down. We are here to help you, and make sure you don't overstep your power or ideas into dangerous territory. However, we must say this: Be warned. The SSCB will find you if you create a secret society. But, as we said before, we are here to help.
